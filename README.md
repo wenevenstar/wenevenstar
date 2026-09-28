@@ -1,5 +1,4 @@
-read gsgw guys its peak || credits to LanterCat for this amazing art !!
-  ## ![Image Alt](https://github.com/wenevenstar/wenevenstar/blob/c844dfc2610d88514f81796661e8ee9db940c293/391c9e3e9e44bc7cf73253d0a6f74179.jpg)
+ ## ![Image Alt](https://github.com/wenevenstar/wenevenstar/blob/0ed28a11269164fbc47423256a8b3361f559e8af/Untitled1943_20260928002718.png)
 <!--
 **wenevenstar/wenevenstar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
